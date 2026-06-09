@@ -1,4 +1,4 @@
-# 
+# Léger Glary Utilities extensions pour Mac OS | Meilleur Glary Utilities extensions pour PC Windows. Avec protection de la vie privée et accélération matérielle — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
